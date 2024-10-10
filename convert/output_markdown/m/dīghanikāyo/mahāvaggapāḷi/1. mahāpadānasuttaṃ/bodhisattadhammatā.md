@@ -1,0 +1,31 @@
+[03] 17^b^.^eb^ ``atha kho, bhikkhave, vipassī bodhisatto  tusitā kāyā cavitvā sato sampajāno mātukucchiṃ okkami.  ayamettha dhammatā.
+
+[03] 18^b^.^eb^ ``dhammatā, esā, bhikkhave, yadā bodhisatto  tusitā kāyā cavitvā mātukucchiṃ okkamati. atha sadevake loke  samārake sabrahmake sassamaṇabrāhmaṇiyā pajāya sadevamanussāya  appamāṇo uḷāro obhāso pātubhavati atikkammeva devānaṃ devānubhāvaṃ.  yāpi tā lokantarikā aghā asaṃvutā andhakārā   andhakāratimisā ^a^T2.0014^ea^, yattha pime candimasūriyā evaṃmahiddhikā evaṃmahānubhāvā ābhāya  nānubhonti, tatthapi appamāṇo uḷāro obhāso pātubhavati  atikkammeva devānaṃ devānubhāvaṃ. yepi tattha sattā upapannā, tepi  tenobhāsena ^a^V2.0010^ea^ aññamaññaṃ sañjānanti -- `aññepi kira, bho, santi  sattā idhūpapannā'ti. ayañca dasasahassī lokadhātu saṅkampati  sampakampati sampavedhati. appamāṇo ca uḷāro obhāso loke pātubhavati   atikkammeva devānaṃ devānubhāvaṃ. ayamettha dhammatā.
+
+[03] 19^b^.^eb^ ``dhammatā ^a^M2.0011^ea^ esā, bhikkhave, yadā bodhisatto  mātukucchiṃ okkanto hoti, cattāro naṃ devaputtā catuddisaṃ {cātuddisaṃ (syā0)} rakkhāya  upagacchanti -- `mā naṃ bodhisattaṃ vā bodhisattamātaraṃ vā manusso  vā amanusso vā koci vā viheṭhesī'ti. ayamettha dhammatā.
+
+[03] 20^b^.^eb^ ``dhammatā esā, bhikkhave, yadā bodhisatto  mātukucchiṃ okkanto hoti, pakatiyā sīlavatī bodhisattamātā  hoti, viratā pāṇātipātā, viratā adinnādānā, viratā  kāmesumicchācārā ^a^P2.0013^ea^, viratā musāvādā, viratā  surāmerayamajjappamādaṭṭhānā. ayamettha dhammatā.
+
+[03] 21^b^.^eb^ ``dhammatā esā, bhikkhave, yadā bodhisatto  mātukucchiṃ okkanto hoti, na bodhisattamātu purisesu mānasaṃ  uppajjati kāmaguṇūpasaṃhitaṃ, anatikkamanīyā ca bodhisattamātā hoti  kenaci purisena rattacittena. ayamettha dhammatā.
+
+[03] 22^b^.^eb^ ``dhammatā esā, bhikkhave, yadā bodhisatto  mātukucchiṃ okkanto ^a^T2.0015^ea^ hoti, lābhinī bodhisattamātā hoti pañcannaṃ  kāmaguṇānaṃ. sā pañcahi kāmaguṇehi samappitā samaṅgībhūtā  paricāreti. ayamettha dhammatā.
+
+[03] 23^b^.^eb^ ``dhammatā esā, bhikkhave, yadā bodhisatto  mātukucchiṃ okkanto hoti, na bodhisattamātu kocideva ābādho  uppajjati. sukhinī bodhisattamātā hoti akilantakāyā,  bodhisattañca bodhisattamātā tirokucchigataṃ passati sabbaṅgapaccaṅgiṃ  ahīnindriyaṃ. seyyathāpi, bhikkhave, maṇi veḷuriyo subho jātimā  aṭṭhaṃso suparikammakato accho vippasanno anāvilo sabbākārasampanno.  tatrāssa {tatrassa (syā0)} suttaṃ āvutaṃ nīlaṃ vā pītaṃ vā lohitaṃ vā odātaṃ vā  paṇḍusuttaṃ vā. tamenaṃ cakkhumā puriso hatthe karitvā paccavekkheyya  -- `ayaṃ kho maṇi veḷuriyo subho jātimā aṭṭhaṃso suparikammakato  accho vippasanno anāvilo sabbākārasampanno. tatridaṃ suttaṃ āvutaṃ  nīlaṃ vā pītaṃ vā lohitaṃ vā odātaṃ vā paṇḍusuttaṃ vā'ti. evameva  kho, bhikkhave, yadā bodhisatto ^a^M2.0012^ea^ mātukucchiṃ okkanto hoti, na  bodhisattamātu kocideva ābādho uppajjati, sukhinī bodhisattamātā  hoti akilantakāyā ^a^V2.0011^ea^, bodhisattañca ^a^P2.0014^ea^ bodhisattamātā tirokucchigataṃ  passati sabbaṅgapaccaṅgiṃ ahīnindriyaṃ. ayamettha dhammatā.
+
+[03] 24^b^.^eb^ ``dhammatā esā, bhikkhave, sattāhajāte  bodhisatte bodhisattamātā kālaṅkaroti tusitaṃ kāyaṃ upapajjati.  ayamettha dhammatā.
+
+[03] 25^b^.^eb^ ``dhammatā ^a^T2.0016^ea^ esā, bhikkhave, yathā aññā  itthikā nava vā dasa vā māse gabbhaṃ kucchinā pariharitvā  vijāyanti, na hevaṃ bodhisattaṃ bodhisattamātā vijāyati. daseva  māsāni bodhisattaṃ bodhisattamātā kucchinā pariharitvā vijāyati.  ayamettha dhammatā.
+
+[03] 26^b^.^eb^ ``dhammatā esā, bhikkhave, yathā aññā  itthikā nisinnā vā nipannā vā vijāyanti, na hevaṃ bodhisattaṃ  bodhisattamātā vijāyati. ṭhitāva bodhisattaṃ bodhisattamātā  vijāyati. ayamettha dhammatā.
+
+[03] 27^b^.^eb^ ``dhammatā esā, bhikkhave, yadā bodhisatto  mātukucchimhā nikkhamati, devā paṭhamaṃ paṭiggaṇhanti, pacchā manussā.  ayamettha dhammatā.
+
+[03] 28^b^.^eb^ ``dhammatā esā, bhikkhave, yadā bodhisatto  mātukucchimhā nikkhamati, appattova bodhisatto pathaviṃ hoti,  cattāro naṃ devaputtā paṭiggahetvā mātu purato ṭhapenti -- `attamanā,  devi, hohi; mahesakkho te putto uppanno'ti. ayamettha dhammatā.
+
+[03] 29^b^.^eb^ ``dhammatā esā, bhikkhave, yadā bodhisatto  mātukucchimhā nikkhamati, visadova nikkhamati amakkhito udena {uddena  (syā0), udarena (katthaci)}  amakkhito semhena amakkhito ruhirena amakkhito kenaci asucinā  suddho {visuddho (syā0)} visado. seyyathāpi, bhikkhave, maṇiratanaṃ kāsike vatthe  nikkhittaṃ neva maṇiratanaṃ kāsikaṃ vatthaṃ makkheti, nāpi kāsikaṃ  vatthaṃ maṇiratanaṃ makkheti. taṃ kissa ^a^T2.0017^ea^ hetu? ubhinnaṃ suddhattā.  evameva kho, bhikkhave, yadā bodhisatto mātukucchimhā nikkhamati,  visadova nikkhamati amakkhito, udena amakkhito ^a^M2.0013^ea^  semhena ^a^P2.0015^ea^  amakkhito ruhirena amakkhito kenaci asucinā suddho visado.  ayamettha dhammatā.
+
+[03] 30^b^.^eb^ ``dhammatā esā, bhikkhave, yadā bodhisatto  mātukucchimhā nikkhamati, dve udakassa ^a^V2.0012^ea^ dhārā antalikkhā   pātubhavanti -- ekā sītassa ekā uṇhassa yena bodhisattassa  udakakiccaṃ karonti mātu ca. ayamettha dhammatā.
+
+[03] 31^b^.^eb^ ``dhammatā esā, bhikkhave, sampatijāto  bodhisatto samehi pādehi patiṭṭhahitvā uttarābhimukho {uttarenābhimukho (syā0)  uttarenamukho (ka0)}  sattapadavītihārena gacchati setamhi chatte anudhāriyamāne, sabbā ca  disā anuviloketi, āsabhiṃ vācaṃ bhāsati `aggohamasmi  lokassa, jeṭṭhohamasmi lokassa, seṭṭhohamasmi lokassa, ayamantimā  jāti, natthidāni punabbhavo'ti. ayamettha dhammatā.
+
+[03] 32^b^.^eb^ ``dhammatā esā, bhikkhave, yadā bodhisatto  mātukucchimhā nikkhamati, atha sadevake loke samārake sabrahmake  sassamaṇabrāhmaṇiyā pajāya sadevamanussāya appamāṇo uḷāro obhāso  ^a^T2.0018^ea^ pātubhavati, atikkammeva devānaṃ devānubhāvaṃ. yāpi tā lokantarikā  aghā asaṃvutā andhakārā andhakāratimisā, yattha pime candimasūriyā  evaṃmahiddhikā evaṃmahānubhāvā ābhāya nānubhonti, tatthapi appamāṇo  uḷāro obhāso pātubhavati atikkammeva devānaṃ devānubhāvaṃ. yepi  tattha sattā upapannā, tepi tenobhāsena aññamaññaṃ sañjānanti --  `aññepi kira, bho, santi sattā idhūpapannā'ti. ayañca  dasasahassī lokadhātu saṅkampati sampakampati sampavedhati appamāṇo  ca uḷāro obhāso loke pātubhavati atikkammeva devānaṃ devānubhāvaṃ.  ayamettha dhammatā.

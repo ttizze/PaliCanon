@@ -1,0 +1,5 @@
+[03] 81^b^.^eb^ ``santi, bhikkhave, eke samaṇabrāhmaṇā  uddhamāghātanikā nevasaññīnāsaññīvādā, uddhamāghātanaṃ  nevasaññīnāsaññiṃ attānaṃ paññapenti aṭṭhahi vatthūhi. te ca bhonto  samaṇabrāhmaṇā kimāgamma kimārabbha uddhamāghātanikā  nevasaññīnāsaññīvādā uddhamāghātanaṃ nevasaññīnāsaññiṃ attānaṃ  paññapenti aṭṭhahi vatthūhi?
+
+[03] 82^b^.^eb^ ```rūpī attā hoti arogo paraṃ maraṇā  nevasaññīnāsaññī'ti naṃ paññapenti `arūpī ^a^T1.0043^ea^ attā hoti...pe0...  rūpī ca arūpī ca attā hoti... nevarūpī nārūpī attā hoti...  antavā attā hoti... anantavā attā hoti... antavā ca anantavā  ca attā hoti... nevantavā nānantavā attā hoti arogo paraṃ maraṇā  nevasaññīnāsaññī'ti naṃ paññapenti.
+
+[03] 83^b^.^eb^ ``imehi kho te, bhikkhave, samaṇabrāhmaṇā  uddhamāghātanikā nevasaññīnāsaññīvādā uddhamāghātanaṃ  nevasaññīnāsaññiṃ attānaṃ paññapenti aṭṭhahi vatthūhi. ye hi keci,  bhikkhave, samaṇā vā brāhmaṇā vā uddhamāghātanikā  nevasaññīnāsaññīvādā uddhamāghātanaṃ nevasaññīnāsaññiṃ attānaṃ  paññapenti, sabbe te imeheva aṭṭhahi vatthūhi...pe0... ^a^V1.0029^ea^   ^a^P1.0033^ea^ yehi tathāgatassa yathābhuccaṃ vaṇṇaṃ sammā vadamānā vadeyyuṃ.

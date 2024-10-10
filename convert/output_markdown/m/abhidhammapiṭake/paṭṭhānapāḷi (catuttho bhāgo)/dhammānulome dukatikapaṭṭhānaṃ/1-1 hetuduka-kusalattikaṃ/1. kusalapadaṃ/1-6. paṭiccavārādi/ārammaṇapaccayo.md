@@ -1,0 +1,3 @@
+[03] 4^b^.^eb^ hetuṃ ^a^M4.0196^ea^ kusalaṃ dhammaṃ paṭicca hetu kusalo dhammo uppajjati ārammaṇapaccayā  (saṃkhittaṃ).
+
+[03] 5^b^.^eb^ hetuyā nava, ārammaṇe nava, adhipatiyā nava, anantare nava, samanantare nava, sahajāte  nava, aññamaññe nava, nissaye nava, upanissaye nava, purejāte nava, āsevane nava, kamme  nava, āhāre nava, indriye nava, jhāne nava, magge nava, sampayutte nava, vippayutte nava,  atthiyā nava, natthiyā nava, vigate nava, avigate nava (anulomaṃ).

@@ -1,0 +1,1 @@
+[03] 8^b^.^eb^ hetuṃ ^a^V4.0231^ea^ kusalaṃ dhammaṃ paṭicca hetu kusalo dhammo uppajjati napurejātapaccayā...  nava... napacchājātapaccayā... nava... nāasevanapaccayā ^a^T5.0003^ea^... nava.

@@ -1,0 +1,5 @@
+[03] 1^b^.^eb^ hetuṃ ^a^T5.0001^ea^ ^a^M4.0195^ea^ ^a^V4.0229^ea^ kusalaṃ dhammaṃ paṭicca hetu kusalo dhammo uppajjati hetupaccayā.  hetuṃ kusalaṃ dhammaṃ paṭicca nahetu kusalo dhammo uppajjati hetupaccayā. hetuṃ  kusalaṃ dhammaṃ paṭicca hetu kusalo ca nahetu kusalo ca dhammā uppajjanti hetupaccayā.  (3)
+
+[03] 2^b^.^eb^ nahetuṃ kusalaṃ dhammaṃ paṭicca nahetu kusalo dhammo uppajjati hetupaccayā.  nahetuṃ kusalaṃ dhammaṃ paṭicca hetu kusalo dhammo uppajjati hetupaccayā. nahetuṃ  kusalaṃ dhammaṃ paṭicca hetu kusalo ca nahetu kusalo ca dhammā uppajjanti hetupaccayā.  (3)
+
+[03] 3^b^.^eb^ hetuṃ kusalañca nahetuṃ kusalañca dhammaṃ paṭicca hetu kusalo dhammo uppajjati  hetupaccayā ^a^V4.0230^ea^. hetuṃ kusalañca nahetuṃ kusalañca dhammaṃ paṭicca nahetu kusalo dhammo  uppajjati ^a^T5.0002^ea^ hetupaccayā. hetuṃ kusalañca nahetuṃ kusalañca dhammaṃ paṭicca hetu kusalo  ca nahetu kusalo ca dhammā uppajjanti hetupaccayā. (3)

@@ -1,0 +1,13 @@
+[03] 37^b^.^eb^ ``atha kho, bhikkhave, bandhumā rājā nemitte  brāhmaṇe ahatehi vatthehi acchādāpetvā {acchādetvā (syā0)} sabbakāmehi santappesi. atha  kho, bhikkhave, bandhumā rājā vipassissa kumārassa dhātiyo  upaṭṭhāpesi. aññā khīraṃ pāyenti, aññā nhāpenti, aññā dhārenti,  aññā aṅkena pariharanti. jātassa kho pana, bhikkhave, vipassissa  kumārassa setacchattaṃ dhārayittha divā ceva rattiñca -- `mā naṃ sītaṃ  vā ^a^T2.0023^ea^ uṇhaṃ vā tiṇaṃ vā rajo vā ussāvo vā bādhayitthā'ti. jāto  kho pana, bhikkhave, vipassī kumāro bahuno janassa piyo ahosi  manāpo. seyyathāpi, bhikkhave, uppalaṃ vā ^a^P2.0020^ea^ padumaṃ vā puṇḍarīkaṃ vā  bahuno janassa piyaṃ manāpaṃ; evameva kho, bhikkhave, vipassī kumāro  bahuno janassa piyo ahosi manāpo. svāssudaṃ aṅkeneva aṅkaṃ  parihariyati.
+
+[03] 38^b^.^eb^ ``jāto kho pana, bhikkhave, vipassī kumāro  mañjussaro ca {kumāro brahmassaro mañjussaro ca (sī0 ka0)} ahosi   vaggussaro ca madhurassaro ca pemaniyassaro ca.  seyyathāpi, bhikkhave, himavante pabbate karavīkā nāma sakuṇajāti  mañjussarā ca vaggussarā ca madhurassarā ca pemaniyassarā ca; evameva  kho, bhikkhave, vipassī kumāro mañjussaro ca ahosi vaggussaro ca  madhurassaro ca pemaniyassaro ca.
+
+[03] 39^b^.^eb^ ``jātassa ^a^V2.0016^ea^ kho pana, bhikkhave, vipassissa  kumārassa kammavipākajaṃ dibbacakkhu pāturahosi yena sudaṃ {yena dūraṃ (syā0)} samantā  yojanaṃ passati divā ceva rattiñca.
+
+[03] 40^b^.^eb^ ``jāto kho pana, bhikkhave, vipassī kumāro  animisanto pekkhati seyyathāpi devā tāvatiṃsā. `animisanto  kumāro pekkhatī'ti kho, bhikkhave {animisanto pekkhati, jātassa kho pana  bhikkhave (ka0)}, vipassissa kumārassa `vipassī  vipassī' tveva samaññā udapādi.
+
+[03] 41^b^.^eb^ ``atha ^a^M2.0018^ea^ kho, bhikkhave, bandhumā rājā  atthakaraṇe {aṭṭa karaṇe (syā0)} nisinno vipassiṃ kumāraṃ aṅke nisīdāpetvā atthe  anusāsati ^a^P2.0021^ea^. tatra sudaṃ, bhikkhave, vipassī kumāro pituaṅke  nisinno viceyya ^a^T2.0024^ea^ viceyya atthe panāyati ñāyena {aṭṭe panāyati ñāṇena  (syā0)}. viceyya viceyya  kumāro atthe panāyati ñāyenāti kho, bhikkhave, vipassissa  kumārassa bhiyyosomattāya `vipassī vipassī' tveva samaññā  udapādi.
+
+[03] 42^b^.^eb^ ``atha kho, bhikkhave, bandhumā rājā  vipassissa kumārassa tayo pāsāde kārāpesi, ekaṃ vassikaṃ ekaṃ  hemantikaṃ ekaṃ gimhikaṃ; pañca kāmaguṇāni upaṭṭhāpesi. tatra sudaṃ,  bhikkhave, vipassī kumāro vassike pāsāde cattāro māse {vassike pāsāde  vassike}  nippurisehi tūriyehi paricārayamāno na heṭṭhāpāsādaṃ orohatī''ti.
+
+[06] paṭhamabhāṇavāro.

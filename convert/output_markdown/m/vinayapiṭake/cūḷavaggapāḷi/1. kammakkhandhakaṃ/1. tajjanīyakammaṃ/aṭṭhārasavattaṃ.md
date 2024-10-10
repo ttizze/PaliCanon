@@ -1,0 +1,3 @@
+[03] 7^b^.^eb^ ``tajjanīyakammakatena ^a^V0.0010^ea^, bhikkhave, bhikkhunā sammā vattitabbaṃ. tatrāyaṃ sammāvattanā --  na upasampādetabbaṃ, na nissayo dātabbo, na sāmaṇero upaṭṭhāpetabbo,  na bhikkhunovādakasammuti {sammati (syā0)}  sāditabbā, sammatenapi bhikkhuniyo na ovaditabbā. yāya āpattiyā saṅghena tajjanīyakammaṃ  kataṃ hoti sā āpatti na āpajjitabbā, aññā vā tādisikā, tato vā pāpiṭṭhatarā;  kammaṃ na garahitabbaṃ, kammikā na garahitabbā. na pakatattassa bhikkhuno uposatho  ṭhapetabbo, na pavāraṇā ṭhapetabbā, na savacanīyaṃ kātabbaṃ, na anuvādo paṭṭhapetabbo,  na okāso kāretabbo, na codetabbo, na sāretabbo, na bhikkhūhi {na bhikkhū  bhikkhūhi (syā0)} sampayojetabba''nti.
+
+[06] tajjanīyakamme aṭṭhārasavattaṃ niṭṭhitaṃ.

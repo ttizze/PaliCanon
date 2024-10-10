@@ -1,0 +1,1 @@
+[03] 74^b^.^eb^ ``santi, bhikkhave, eke samaṇabrāhmaṇā  aparantakappikā aparantānudiṭṭhino, aparantaṃ ārabbha anekavihitāni  adhimuttipadāni abhivadanti catucattārīsāya {catucattālīsāya (syā0 kaṃ0)} vatthūhi. te ca bhonto  samaṇabrāhmaṇā kimāgamma kimārabbha aparantakappikā aparantānudiṭṭhino  aparantaṃ ārabbha anekavihitāni adhimuttipadāni abhivadanti  catucattārīsāya vatthūhi?

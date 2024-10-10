@@ -1,0 +1,15 @@
+[03] 67^b^.^eb^ ``santi, bhikkhave, eke samaṇabrāhmaṇā  adhiccasamuppannikā adhiccasamuppannaṃ attānañca lokañca paññapenti  dvīhi vatthūhi. te ca bhonto samaṇabrāhmaṇā ^a^M1.0027^ea^ kimāgamma kimārabbha  adhiccasamuppannikā adhiccasamuppannaṃ attānañca lokañca paññapenti  dvīhi vatthūhi?
+
+[03] 68^b^.^eb^ ``santi, bhikkhave, asaññasattā nāma devā.  saññuppādā ca pana te devā tamhā kāyā cavanti. ṭhānaṃ kho panetaṃ,  bhikkhave, vijjati, yaṃ aññataro satto tamhā kāyā cavitvā itthattaṃ  āgacchati. itthattaṃ āgato samāno agārasmā anagāriyaṃ pabbajati.  agārasmā anagāriyaṃ pabbajito samāno ātappamanvāya  padhānamanvāya anuyogamanvāya appamādamanvāya sammāmanasikāramanvāya  tathārūpaṃ cetosamādhiṃ phusati, yathāsamāhite citte saññuppādaṃ  anussarati, tato paraṃ ^a^P1.0029^ea^ nānussarati. so evamāha --  `adhiccasamuppanno attā ca loko ca. taṃ kissa hetu? ahañhi  pubbe nāhosiṃ, somhi etarahi ahutvā santatāya pariṇato'ti.  idaṃ, bhikkhave, paṭhamaṃ ṭhānaṃ, yaṃ āgamma yaṃ ārabbha eke samaṇabrāhmaṇā  adhiccasamuppannikā adhiccasamuppannaṃ attānañca ^a^T1.0039^ea^ lokañca paññapenti.
+
+[03] 69^b^.^eb^ ``dutiye ^a^V1.0025^ea^ ca bhonto samaṇabrāhmaṇā kimāgamma  kimārabbha adhiccasamuppannikā adhiccasamuppannaṃ attānañca lokañca  paññapenti? idha, bhikkhave, ekacco samaṇo vā brāhmaṇo vā takkī  hoti vīmaṃsī. so takkapariyāhataṃ vīmaṃsānucaritaṃ sayaṃpaṭibhānaṃ  evamāha -- `adhiccasamuppanno attā ca loko cā'ti. idaṃ,  bhikkhave, dutiyaṃ ṭhānaṃ, yaṃ āgamma yaṃ ārabbha eke samaṇabrāhmaṇā  adhiccasamuppannikā adhiccasamuppannaṃ attānañca lokañca paññapenti.
+
+[03] 70^b^.^eb^ ``imehi kho te, bhikkhave, samaṇabrāhmaṇā  adhiccasamuppannikā adhiccasamuppannaṃ attānañca lokañca paññapenti  dvīhi vatthūhi. ye hi keci, bhikkhave, samaṇā vā brāhmaṇā vā  adhiccasamuppannikā adhiccasamuppannaṃ attānañca lokañca paññapenti,  sabbe te imeheva dvīhi vatthūhi, etesaṃ vā aññatarena, natthi ito  bahiddhā...pe0... yehi tathāgatassa yathābhuccaṃ vaṇṇaṃ sammā vadamānā  vadeyyuṃ.
+
+[03] 71^b^.^eb^ ``imehi kho te, bhikkhave, samaṇabrāhmaṇā  pubbantakappikā pubbantānudiṭṭhino pubbantaṃ ārabbha anekavihitāni  adhimuttipadāni abhivadanti aṭṭhārasahi ^a^M1.0028^ea^ vatthūhi. ye hi keci,  bhikkhave, samaṇā vā brāhmaṇā vā pubbantakappikā pubbantānudiṭṭhino  pubbantamārabbha anekavihitāni adhimuttipadāni abhivadanti, sabbe te  imeheva aṭṭhārasahi vatthūhi, etesaṃ vā aññatarena, natthi ito ^a^T1.0040^ea^ bahiddhā.
+
+[03] 72^b^.^eb^ ``tayidaṃ, bhikkhave, tathāgato pajānāti --  `ime diṭṭhiṭṭhānā evaṃgahitā evaṃparāmaṭṭhā evaṃgatikā bhavanti  evaṃabhisamparāyā'ti. tañca tathāgato pajānāti, tato ca uttaritaraṃ  pajānāti, tañca pajānanaṃ na parāmasati, aparāmasato cassa  paccattaññeva nibbuti viditā. vedanānaṃ samudayañca atthaṅgamañca  assādañca ādīnavañca nissaraṇañca yathābhūtaṃ viditvā  anupādāvimutto, bhikkhave, tathāgato.
+
+[03] 73^b^.^eb^ ``ime ^a^V1.0026^ea^ kho te, bhikkhave, dhammā gambhīrā  duddasā duranubodhā santā paṇītā atakkāvacarā nipuṇā  paṇḍitavedanīyā, ye tathāgato sayaṃ abhiññā sacchikatvā pavedeti ^a^P1.0030^ea^,  yehi tathāgatassa yathābhuccaṃ vaṇṇaṃ sammā vadamānā vadeyyuṃ.
+
+[06] dutiyabhāṇavāro.

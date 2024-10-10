@@ -1,0 +1,73 @@
+[03] 14^b^.^eb^ savitakkasavicāraṃ dhammaṃ paṭicca savitakkasavicāro dhammo uppajjati vippayuttapaccayā --  savitakkasavicāraṃ ekaṃ khandhaṃ paṭicca tayo khandhā...pe0... vatthuṃ vippayuttapaccayā.  paṭisandhikkhaṇe savitakkasavicāraṃ ekaṃ khandhaṃ paṭicca tayo khandhā...pe0... vatthuṃ vippayuttapaccayā.  (1)
+
+[03] savitakkasavicāraṃ dhammaṃ paṭicca avitakkavicāramatto dhammo uppajjati vippayuttapaccayā --  savitakkasavicāre khandhe paṭicca vitakko; vatthuṃ vippayuttapaccayā. paṭisandhikkhaṇe...pe0....  (2)
+
+[03] savitakkasavicāraṃ dhammaṃ paṭicca avitakkāvicāro dhammo uppajjati vippayuttapaccayā --  savitakkasavicāre khandhe paṭicca cittasamuṭṭhānaṃ rūpaṃ, khandhe vippayuttapaccayā. paṭisandhikkhaṇe...pe0....  (3)
+
+[03] savitakkasavicāraṃ dhammaṃ paṭicca savitakkasavicāro ca avitakkāvicāro ca dhammā  uppajjanti vippayuttapaccayā -- savitakkasavicāraṃ ekaṃ khandhaṃ paṭicca tayo khandhā  cittasamuṭṭhānañca rūpaṃ...pe0... khandhā vatthuṃ vippayuttapaccayā ^a^T2.0015^ea^. cittasamuṭṭhānaṃ rūpaṃ  khandhe vippayuttapaccayā. paṭisandhikkhaṇe...pe0.... (4)
+
+[03] savitakkasavicāraṃ ^a^M2.0011^ea^ dhammaṃ paṭicca avitakkavicāramatto ca avitakkāvicāro  ca dhammā uppajjanti vippayuttapaccayā -- savitakkasavicāre khandhe paṭicca vitakko  ca cittasamuṭṭhānañca ^a^V2.0013^ea^ rūpaṃ. vitakko vatthuṃ vippayuttapaccayā. cittasamuṭṭhānaṃ rūpaṃ  khandhe vippayuttapaccayā. paṭisandhikkhaṇe...pe0.... (5)
+
+[03] savitakkasavicāraṃ dhammaṃ paṭicca savitakkasavicāro ca avitakkavicāramatto ca dhammā  uppajjanti vippayuttapaccayā -- savitakkasavicāraṃ ekaṃ khandhaṃ paṭicca tayo khandhā  vitakko ca...pe0... dve khandhe paṭicca dve khandhā vitakko ca, vatthuṃ vippayuttapaccayā.  paṭisandhikkhaṇe...pe0.... (6)
+
+[03] savitakkasavicāraṃ dhammaṃ paṭicca savitakkasavicāro ca avitakkavicāramatto ca avitakkāvicāro  ca dhammā uppajjanti vippayuttapaccayā -- savitakkasavicāraṃ ekaṃ khandhaṃ paṭicca tayo  khandhā vitakko ca cittasamuṭṭhānañca rūpaṃ...pe0... dve khandhe paṭicca dve khandhā vitakko  ca cittasamuṭṭhānañca rūpaṃ. khandhā ca vitakko ca vatthuṃ vippayuttapaccayā. cittasamuṭṭhānaṃ  rūpaṃ khandhe vippayuttapaccayā. paṭisandhikkhaṇe...pe0.... (7)
+
+[03] 15^b^.^eb^ avitakkavicāramattaṃ dhammaṃ paṭicca avitakkavicāramatto dhammo uppajjati...pe0...  avitakkavicāramattaṃ ekaṃ khandhaṃ paṭicca tayo khandhā...pe0... dve khandhe...pe0...  vatthuṃ vippayuttapaccayā. paṭisandhikkhaṇe...pe0.... (1)
+
+[03] avitakkavicāramattaṃ dhammaṃ paṭicca savitakkasavicāro dhammo uppajjati vippayuttapaccayā --  vitakkaṃ paṭicca savitakkasavicārā khandhā, vatthuṃ vippayuttapaccayā ^a^T2.0016^ea^. paṭisandhikkhaṇe...pe0....  (2)
+
+[03] avitakkavicāramattaṃ dhammaṃ paṭicca avitakkāvicāro dhammo uppajjati vippayuttapaccayā --  avitakkavicāramatte khandhe paṭicca vicāro ca cittasamuṭṭhānañca rūpaṃ, vicāro vatthuṃ  vippayuttapaccayā. cittasamuṭṭhānaṃ rūpaṃ khandhe vippayuttapaccayā. vitakkaṃ paṭicca cittasamuṭṭhānaṃ  rūpaṃ, vitakkaṃ vippayuttapaccayā. paṭisandhikkhaṇe...pe0.... (3)
+
+[03] avitakkavicāramattaṃ dhammaṃ paṭicca savitakkasavicāro ca avitakkāvicāro ca dhammā  uppajjanti vippayuttapaccayā -- vitakkaṃ paṭicca savitakkasavicārā khandhā cittasamuṭṭhānañca  rūpaṃ, khandhā vatthuṃ vippayuttapaccayā. cittasamuṭṭhānaṃ rūpaṃ vitakkaṃ vippayuttapaccayā.  paṭisandhikkhaṇe...pe0.... (4)
+
+[03] avitakkavicāramattaṃ ^a^M2.0012^ea^ ^a^V2.0014^ea^ dhammaṃ paṭicca avitakkavicāramatto ca avitakkāvicāro  ca dhammā uppajjanti vippayuttapaccayā -- avitakkavicāramattaṃ ekaṃ khandhaṃ paṭicca tayo  khandhā vicāro ca cittasamuṭṭhānañca rūpaṃ...pe0... dve khandhe paṭicca dve khandhā vicāro  ca cittasamuṭṭhānañca rūpaṃ. khandhā ca vicāro ca vatthuṃ vippayuttapaccayā. cittasamuṭṭhānaṃ  rūpaṃ khandhe vippayuttapaccayā. paṭisandhikkhaṇe...pe0.... (5)
+
+[03] 16^b^.^eb^ avitakkāvicāraṃ dhammaṃ paṭicca avitakkāvicāro dhammo uppajjati vippayuttapaccayā --  avitakkāvicāraṃ ekaṃ khandhaṃ paṭicca tayo khandhā cittasamuṭṭhānañca rūpaṃ...pe0...  dve khandhe...pe0... khandhā vatthuṃ vippayuttapaccayā, cittasamuṭṭhānaṃ rūpaṃ khandhe vippayuttapaccayā.  vicāraṃ ^a^T2.0017^ea^ paṭicca cittasamuṭṭhānaṃ rūpaṃ, vicāraṃ vippayuttapaccayā. paṭisandhikkhaṇe...pe0...  paṭisandhikkhaṇe vicāraṃ paṭicca kaṭattārūpaṃ, vicāraṃ vippayuttapaccayā. khandhe paṭicca  vatthu, vatthuṃ paṭicca khandhā. khandhā vatthuṃ vippayuttapaccayā. vatthu khandhe vippayuttapaccayā.  vicāraṃ paṭicca vatthu, vatthuṃ paṭicca vicāro, vicāro vatthuṃ vippayuttapaccayā.  vatthu vicāraṃ vippayuttapaccayā; ekaṃ mahābhūtaṃ paṭicca tayo mahābhūtā...pe0... mahābhūte  paṭicca cittasamuṭṭhānaṃ rūpaṃ kaṭattārūpaṃ upādārūpaṃ, khandhe vippayuttapaccayā. (1)
+
+[03] avitakkāvicāraṃ dhammaṃ paṭicca savitakkasavicāro dhammo uppajjati vippayuttapaccayā --  paṭisandhikkhaṇe vatthuṃ paṭicca savitakkasavicārā khandhā, vatthuṃ vippayuttapaccayā.  (2)
+
+[03] avitakkāvicāraṃ dhammaṃ paṭicca avitakkavicāramatto dhammo uppajjati vippayuttapaccayā --  vicāraṃ paṭicca avitakkavicāramattā khandhā, vatthuṃ vippayuttapaccayā. paṭisandhikkhaṇe  vicāraṃ paṭicca avitakkavicāramattā khandhā, vatthuṃ vippayuttapaccayā. paṭisandhikkhaṇe  vatthuṃ paṭicca avitakkavicāramattā khandhā, vatthuṃ vippayuttapaccayā. paṭisandhikkhaṇe  vatthuṃ paṭicca vitakko, vatthuṃ vippayuttapaccayā. (3)
+
+[03] avitakkāvicāraṃ dhammaṃ paṭicca savitakkasavicāro ca avitakkāvicāro ca dhammā ^a^V2.0015^ea^ uppajjanti  vippayuttapaccayā -- paṭisandhikkhaṇe vatthuṃ paṭicca savitakkasavicārā khandhā, mahābhūte  paṭicca kaṭattārūpaṃ, khandhā vatthuṃ vippayuttapaccayā. kaṭattārūpaṃ khandhe vippayuttapaccayā.  (4)
+
+[03] avitakkāvicāraṃ ^a^T2.0018^ea^ ^a^M2.0013^ea^ dhammaṃ paṭicca avitakkavicāramatto ca avitakkāvicāro  ca dhammā uppajjanti vippayuttapaccayā -- vicāraṃ paṭicca avitakkavicāramattā khandhā  ca cittasamuṭṭhānañca rūpaṃ...pe0... khandhā vatthuṃ vippayuttapaccayā. cittasamuṭṭhānaṃ  rūpaṃ vicāraṃ vippayuttapaccayā. paṭisandhikkhaṇe vicāraṃ paṭicca avitakkavicāramattā  khandhā ca kaṭattā ca rūpaṃ, khandhā vatthuṃ vippayuttapaccayā. kaṭattārūpaṃ vicāraṃ vippayuttapaccayā.  paṭisandhikkhaṇe vatthuṃ paṭicca avitakkavicāramattā khandhā mahābhūte paṭicca kaṭattārūpaṃ,  khandhā vatthuṃ vippayuttapaccayā. kaṭattārūpaṃ khandhe vippayuttapaccayā. paṭisandhikkhaṇe  vatthuṃ paṭicca vitakko, mahābhūte paṭicca kaṭattārūpaṃ, vitakko vatthuṃ vippayuttapaccayā.  kaṭattārūpaṃ khandhe vippayuttapaccayā. paṭisandhikkhaṇe vatthuṃ paṭicca avitakkavicāramattā  khandhā ca vicāro ca, vatthuṃ vippayuttapaccayā. (5)
+
+[03] avitakkāvicāraṃ dhammaṃ paṭicca savitakkasavicāro ca avitakkavicāramatto ca dhammā  uppajjanti vippayuttapaccayā -- paṭisandhikkhaṇe vatthuṃ paṭicca savitakkasavicārā khandhā  ca vitakko ca, vatthuṃ vippayuttapaccayā. (6)
+
+[03] avitakkāvicāraṃ dhammaṃ paṭicca savitakkasavicāro ca avitakkavicāramatto ca avitakkāvicāro  ca dhammā uppajjanti vippayuttapaccayā -- paṭisandhikkhaṇe vatthuṃ paṭicca savitakkasavicārā  khandhā ca vitakko ca, mahābhūte paṭicca kaṭattārūpaṃ, khandhā ca vitakko ca, vatthuṃ  vippayuttapaccayā. kaṭattārūpaṃ khandhe vippayuttapaccayā. (7)
+
+[03] 17^b^.^eb^ savitakkasavicārañca ^a^T2.0019^ea^ avitakkāvicārañca dhammaṃ paṭicca savitakkasavicāro dhammo  uppajjati vippayuttapaccayā -- paṭisandhikkhaṇe savitakkasavicāraṃ ekaṃ khandhañca vatthuñca  paṭicca tayo khandhā, vatthuṃ vippayuttapaccayā. (1)
+
+[03] savitakkasavicārañca ^a^V2.0016^ea^ avitakkāvicārañca dhammaṃ paṭicca avitakkavicāramatto dhammo...pe0...  paṭisandhikkhaṇe savitakkasavicāre khandhe ca vatthuñca paṭicca vitakko, vatthuṃ vippayuttapaccayā.  (2)
+
+[03] savitakkasavicārañca avitakkāvicārañca dhammaṃ paṭicca avitakkāvicāro dhammo...pe0...  savitakkasavicāre khandhe ca mahābhūte ca paṭicca cittasamuṭṭhānaṃ rūpaṃ, khandhe vippayuttapaccayā.  paṭisandhikkhaṇe...pe0.... (3)
+
+[03] savitakkasavicārañca ^a^M2.0014^ea^ avitakkāvicārañca dhammaṃ paṭicca savitakkasavicāro  ca avitakkāvicāro ca dhammā...pe0... paṭisandhikkhaṇe savitakkasavicāraṃ ekaṃ khandhañca  vatthuñca paṭicca tayo khandhā...pe0... dve khandhe ca vatthuñca paṭicca dve khandhā, savitakkasavicāre  khandhe ca mahābhūte ca paṭicca kaṭattārūpaṃ, khandhā vatthuṃ vippayuttapaccayā. kaṭattārūpaṃ  khandhe vippayuttapaccayā. (4)
+
+[03] savitakkasavicārañca avitakkāvicārañca dhammaṃ paṭicca avitakkavicāramatto ca avitakkāvicāro  ca dhammā...pe0... paṭisandhikkhaṇe savitakkasavicāre khandhe ca vatthuñca paṭicca vitakko,  savitakkasavicāre khandhe ca mahābhūte ca paṭicca kaṭattārūpaṃ, vitakko vatthuṃ vippayuttapaccayā.  kaṭattārūpaṃ khandhe vippayuttapaccayā. (5)
+
+[03] savitakkasavicārañca avitakkāvicārañca dhammaṃ paṭicca savitakkasavicāro   ^a^T2.0020^ea^ ca avitakkavicāramatto  ca dhammā...pe0... paṭisandhikkhaṇe savitakkasavicāraṃ ekaṃ khandhañca vatthuñca paṭicca  tayo khandhā vitakko ca...pe0... dve khandhe ca vatthuñca paṭicca dve khandhā vitakko  ca, vatthuṃ vippayuttapaccayā. (6)
+
+[03] savitakkasavicārañca avitakkāvicārañca dhammaṃ paṭicca savitakkasavicāro ca avitakkavicāramatto  ca avitakkāvicāro ca dhammā...pe0... paṭisandhikkhaṇe savitakkasavicāraṃ ekaṃ khandhañca  vatthuñca paṭicca tayo khandhā vitakko ca...pe0... dve khandhe ca vatthuñca paṭicca dve  khandhā vitakko ca. savitakkasavicāre khandhe ca mahābhūte ca ^a^V2.0017^ea^ paṭicca kaṭattārūpaṃ. khandhā  ca vitakko ca, vatthuṃ vippayuttapaccayā. kaṭattārūpaṃ khandhe vippayuttapaccayā.  (7)
+
+[03] 18^b^.^eb^ avitakkavicāramattañca avitakkāvicārañca dhammaṃ paṭicca savitakkasavicāro dhammo...pe0...  paṭisandhikkhaṇe vitakkañca vatthuñca paṭicca savitakkasavicārā khandhā, vatthuṃ vippayuttapaccayā.  (1)
+
+[03] avitakkavicāramattañca avitakkāvicārañca dhammaṃ paṭicca avitakkavicāramatto dhammo...pe0...  avitakkavicāramattaṃ ekaṃ khandhañca vicārañca paṭicca tayo khandhā...pe0... dve khandhe  ca...pe0... vatthuṃ vippayuttapaccayā. paṭisandhikkhaṇe avitakkavicāramattaṃ ekaṃ  khandhañca vicārañca paṭicca tayo khandhā...pe0... dve khandhe ca...pe0... vatthuṃ vippayuttapaccayā.  paṭisandhikkhaṇe avitakkavicāramattaṃ ekaṃ khandhañca vatthuñca paṭicca tayo khandhā...pe0...  dve ^a^T2.0021^ea^ khandhe ca...pe0... vatthuṃ vippayuttapaccayā. (2)
+
+[03] avitakkavicāramattañca ^a^M2.0015^ea^ avitakkāvicārañca dhammaṃ paṭicca avitakkāvicāro  dhammo...pe0... avitakkavicāramatte khandhe ca vicārañca paṭicca cittasamuṭṭhānaṃ rūpaṃ.  khandhe ca vicārañca vippayuttapaccayā. avitakkavicāramatte khandhe ca mahābhūte ca paṭicca  cittasamuṭṭhānaṃ rūpaṃ. khandhe vippayuttapaccayā. vitakkañca mahābhūte ca paṭicca cittasamuṭṭhānaṃ  rūpaṃ. vitakkaṃ vippayuttapaccayā. paṭisandhikkhaṇe avitakkavicāramatte khandhe ca vicārañca  paṭicca kaṭattārūpaṃ. khandhe ca vicārañca vippayuttapaccayā. paṭisandhikkhaṇe avitakkavicāramatte  khandhe ca mahābhūte ca paṭicca kaṭattārūpaṃ. khandhe vippayuttapaccayā. paṭisandhikkhaṇe  vitakkañca mahābhūte ca paṭicca kaṭattārūpaṃ. vitakkaṃ vippayuttapaccayā. paṭisandhikkhaṇe  avitakkavicāramatte khandhe ca vatthuñca paṭicca vicāro. vatthuṃ vippayuttapaccayā.  (3)
+
+[03] avitakkavicāramattañca avitakkāvicārañca dhammaṃ paṭicca savitakkasavicāro ca avitakkāvicāro  ca dhammā uppajjanti vippayuttapaccayā -- paṭisandhikkhaṇe vitakkañca vatthuñca paṭicca  savitakkasavicārā khandhā. vitakkañca mahābhūte ca paṭicca kaṭattārūpaṃ. khandhā vatthuṃ  vippayuttapaccayā. kaṭattārūpaṃ vitakkaṃ vippayuttapaccayā. (4)
+
+[03] avitakkavicāramattañca ^a^V2.0018^ea^ avitakkāvicārañca dhammaṃ paṭicca avitakkavicāramatto ca avitakkāvicāro  ca dhammā...pe0... avitakkavicāramattaṃ ^a^T2.0022^ea^ ekaṃ khandhañca vicārañca paṭicca tayo khandhā  cittasamuṭṭhānañca rūpaṃ...pe0... khandhā vatthuṃ vippayuttapaccayā. cittasamuṭṭhānaṃ rūpaṃ  khandhe ca vicārañca vippayuttapaccayā. paṭisandhikkhaṇe avitakkavicāramattaṃ ekaṃ khandhañca  vicārañca paṭicca tayo khandhā kaṭattā ca rūpaṃ...pe0... khandhā vatthuṃ vippayuttapaccayā.  kaṭattārūpaṃ khandhe ca vicārañca vippayuttapaccayā. paṭisandhikkhaṇe avitakkavicāramattaṃ  ekaṃ khandhañca vatthuñca paṭicca tayo khandhā...pe0... dve khandhe ca...pe0... avitakkavicāramatte  khandhe ca mahābhūte ca paṭicca kaṭattārūpaṃ. khandhā vatthuṃ vippayuttapaccayā. kaṭattārūpaṃ  khandhe vippayuttapaccayā. paṭisandhikkhaṇe avitakkavicāramattaṃ ekaṃ khandhañca vatthuñca  paṭicca tayo khandhā vicāro ca...pe0... dve khandhe ca...pe0... vatthuṃ vippayuttapaccayā.  (5)
+
+[03] 19^b^.^eb^ savitakkasavicārañca avitakkavicāramattañca dhammaṃ paṭicca savitakkasavicāro dhammo  uppajjati...pe0... savitakkasavicāraṃ ekaṃ khandhañca vitakkañca paṭicca tayo ^a^M2.0016^ea^  khandhā...pe0... dve khandhe ca...pe0... vatthuṃ vippayuttapaccayā. paṭisandhikkhaṇe...pe0...  vatthuṃ vippayuttapaccayā. (1)
+
+[03] savitakkasavicārañca avitakkavicāramattañca dhammaṃ paṭicca avitakkāvicāro dhammo  uppajjati...pe0... savitakkasavicāre khandhe ca vitakkañca paṭicca cittasamuṭṭhānaṃ rūpaṃ.  khandhe ca vitakkañca vippayuttapaccayā. paṭisandhikkhaṇe...pe0... khandhe ca vitakkañca  vippayuttapaccayā. (2)
+
+[03] savitakkasavicārañca avitakkavicāramattañca dhammaṃ paṭicca savitakkasavicāro   ^a^T2.0023^ea^ ca avitakkāvicāro ca dhammā   uppajjanti...pe0... savitakkasavicāraṃ ekaṃ khandhañca vitakkañca paṭicca  tayo khandhā cittasamuṭṭhānañca rūpaṃ...pe0... dve khandhe...pe0... khandhā vatthuṃ vippayuttapaccayā.  cittasamuṭṭhānaṃ rūpaṃ khandhe ca vitakkañca vippayuttapaccayā. paṭisandhikkhaṇe...pe0...  khandhā vatthuṃ vippayuttapaccayā. kaṭattārūpaṃ khandhe ca vitakkañca vippayuttapaccayā.  (3)
+
+[03] 20^b^.^eb^ savitakkasavicārañca ^a^V2.0019^ea^ avitakkavicāramattañca avitakkāvicārañca dhammaṃ paṭicca savitakkasavicāro  dhammo uppajjati...pe0... paṭisandhikkhaṇe savitakkasavicāraṃ ekaṃ khandhañca vitakkañca  vatthuñca paṭicca tayo khandhā...pe0... dve khandhe...pe0... khandhā vatthuṃ vippayuttapaccayā.  (1)
+
+[03] savitakkasavicārañca avitakkavicāramattañca avitakkāvicārañca dhammaṃ paṭicca avitakkāvicāro  dhammo uppajjati...pe0... savitakkasavicāre khandhe ca vitakkañca mahābhūte ca paṭicca  cittasamuṭṭhānaṃ rūpaṃ. khandhe ca vitakkañca vippayuttapaccayā. paṭisandhikkhaṇe...pe0...  khandhe ca vitakkañca vippayuttapaccayā. (2)
+
+[03] savitakkasavicārañca avitakkavicāramattañca avitakkāvicārañca dhammaṃ paṭicca savitakkasavicāro  ca avitakkāvicāro ca dhammā uppajjanti vippayuttapaccayā -- paṭisandhikkhaṇe savitakkasavicāraṃ  ekaṃ khandhañca vitakkañca vatthuñca paṭicca tayo khandhā...pe0... dve khandhe ca...pe0...  savitakkasavicāre khandhe ca vitakkañca mahābhūte ca paṭicca kaṭattārūpaṃ ^a^T2.0024^ea^. khandhā vatthuṃ  vippayuttapaccayā. kaṭattārūpaṃ khandhe ca vitakkañca vippayuttapaccayā. (3)

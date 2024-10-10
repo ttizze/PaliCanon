@@ -1,0 +1,1 @@
+[03] 21^b^.^eb^ savitakkasavicāraṃ dhammaṃ paṭicca savitakkasavicāro dhammo uppajjati atthipaccayā...pe0...  natthipaccayā, vigatapaccayā, avigatapaccayā (saṃkhittaṃ).

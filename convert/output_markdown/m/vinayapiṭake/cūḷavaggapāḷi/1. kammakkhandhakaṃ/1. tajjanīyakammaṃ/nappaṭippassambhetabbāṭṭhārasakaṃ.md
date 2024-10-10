@@ -1,0 +1,9 @@
+[03] 8^b^.^eb^ atha kho saṅgho paṇḍukalohitakānaṃ bhikkhūnaṃ tajjanīyakammaṃ akāsi   ^a^T1.0015^ea^. te saṅghena  tajjanīyakammakatā sammā vattanti, lomaṃ pātenti ^a^M0.0011^ea^, netthāraṃ vattanti,  bhikkhū upasaṅkamitvā evaṃ vadanti -- ``mayaṃ, āvuso, saṅghena tajjanīyakammakatā sammā  vattāma, lomaṃ pātema, netthāraṃ vattāma, kathaṃ nu kho amhehi paṭipajjitabba''nti?  bhikkhū bhagavato etamatthaṃ ārocesuṃ...pe0.... ``tena hi, bhikkhave, saṅgho paṇḍukalohitakānaṃ  bhikkhūnaṃ tajjanīyakammaṃ paṭippassambhetu.
+
+[03]pañcahi, bhikkhave, aṅgehi samannāgatassa bhikkhuno tajjanīyakammaṃ nappaṭippassambhetabbaṃ.  upasampādeti, nissayaṃ deti, sāmaṇeraṃ upaṭṭhāpeti, bhikkhunovādakasammutiṃ sādiyati,  sammatopi bhikkhuniyo ovadati -- imehi kho, bhikkhave, pañcahaṅgehi samannāgatassa  bhikkhuno tajjanīyakammaṃ nappaṭippassambhetabbaṃ.
+
+[03] {pari0 420} ``aparehipi, bhikkhave, pañcahaṅgehi samannāgatassa bhikkhuno tajjanīyakammaṃ nappaṭippassambhetabbaṃ.  yāya āpattiyā saṅghena tajjanīyakammaṃ kataṃ hoti taṃ āpattiṃ āpajjati, aññaṃ  vā tādisikaṃ, tato vā pāpiṭṭhataraṃ; kammaṃ garahati, kammike garahati -- imehi  kho, bhikkhave, pañcahaṅgehi samannāgatassa bhikkhuno tajjanīyakammaṃ nappaṭippassambhetabbaṃ.
+
+[03]``aṭṭhahi ^a^V0.0011^ea^, bhikkhave, aṅgehi samannāgatassa bhikkhuno tajjanīyakammaṃ ^a^P2.0006^ea^ nappaṭippassambhetabbaṃ.  pakatattassa bhikkhuno uposathaṃ ṭhapeti, pavāraṇaṃ ṭhapeti, savacanīyaṃ karoti, anuvādaṃ  paṭṭhapeti, okāsaṃ ^a^T1.0016^ea^ kāreti, codeti, sāreti, bhikkhūhi sampayojeti  {bhikkhū bhikkhūhi sampayojeti (syā0)} -- imehi  kho, bhikkhave, aṭṭhahaṅgehi samannāgatassa bhikkhuno tajjanīyakammaṃ nappaṭippassambhetabbaṃ.
+
+[06] nappaṭippassambhetabbāṭṭhārasakaṃ niṭṭhitaṃ.
